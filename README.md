@@ -1,1 +1,1 @@
-# Pensamiento-computacional-para-ingenier-a-Gpo-100-
+# Pensamiento-computacional-para-ingenieria-Gpo-100
